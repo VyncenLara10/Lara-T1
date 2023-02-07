@@ -7,3 +7,8 @@
 + Extraordinario.
 + Supercool.
 
+## **Canciones Favoritas**
+
+1. Nowbody Knows im where
+2. Chicharron con pelos
+3. Shakira
